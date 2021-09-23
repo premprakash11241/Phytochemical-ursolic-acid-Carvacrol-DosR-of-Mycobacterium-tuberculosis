@@ -1,1 +1,0 @@
-# Phytochemical-ursolic-acid-Carvacrol-DosR-of-Mycobacterium-tuberculosis
